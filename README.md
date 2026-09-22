@@ -9,4 +9,4 @@ IW6(Ghosts)
 S1(AW)
 
 # Who Inspired me 
-Crybaby (Join there discord! https://discord.gg/JzjUSTW5rY )
+Crybaby (Join His Discord! https://discord.gg/JzjUSTW5rY )
